@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @blackxjesus
 - 👀 I’m interested in programming.. obviously.. and flying!!
-- 🌱 I’m currently learning to be a pilot
+- 🌱 I’m currently a private pilot
 - 💞️ I’m looking to collaborate with my 7 other personalities
 - 📫 You can send me a mail via pigeon
 
